@@ -1,0 +1,75 @@
+## Entering
+- Found a hidden door behind one of the graves
+- found some pipes behind the hidden door
+- There are some valves on the pipes
+- the pipes contained water
+- walked into another room that had some water creatures
+- The elemental creatures are very timid and did not fight back after being hit.  
+
+## Finding Umbert
+- South of the creatures there is a door, that leads to Umbert Noblin
+- Kidnappers were wearing heavy black hoods
+	- Also wearing red gloves
+		- Possibly to imitate vecna's hands
+- Umbert is the most prominent historian of vecna
+- The people who kidnapped him wanted to know about vecna
+- Talks about the paper he wrote about Vecna and his treacherous lieutenant Kaz
+- Vecna and Kaz fought
+	- Vecna threw Kaz across the multiverse
+	- All that was left of Vecna was the hands and eyes
+	- Kaz ended up in the realm of Tavog
+		- Became progenitor vampire
+- We escorted Umbert back to the entrance
+## Further exploration
+- West of the room there is another room of pipe valves
+- The North room contained cultists that fit the description that Umbert gave us
+- They started to fight us 
+- We killed a group of cultists and found a set of 4 keys from the most important looking dude
+- In the room north of the elementals we fought the cultists and there 3 doors leading north and a door leading west
+- the second door contained sarcelle the wild sorcerer
+	- She said that she was captured because of the visions she had
+		- #secret
+		- Desiccated man who had glowing purple energy
+		- end of man
+- 3rd room has a pit which has a bloody cloth, a small gold harp, and some notes
+	- it had a trap in it :(
+	- Golden harp is worth 2250
+- East of the elemental room up some stairs we find a large scaly creature with a monocle
+	- We talked to him and told him we messed up the cult
+		- He gave us a golden flywheel
+		- Shanzezim
+		- Summoned there by the clockwork guild to continue to work in the mausoleum
+- Room west of the cultist room has 4 bells
+	- 1 2 3 4
+	- Rang bell 4
+		- Nothing happened
+- Room west of bells
+	- Dining hall
+	- Banners in the hall have a painting of a staring eye gripped in a withered hand
+	- Fountains inside the dining hall 
+		- Connected to the pipes
+	- Room to the south has sounds of dripping water
+	- West and North room no sound heard
+- Room north of dining hall is a well lit hallway
+	- The room had some enemies
+		- Wizards
+		- MONKEYS!
+- The east side of the hallway had a room with a sarcophagus with a name etched in it
+	- ayren griffynstone
+- The west side had a door leading north
+	- inside the room is a bunch of names scratched out on the wall
+	- Door leading west
+		- locked
+- Inside is indrina
+	- Indrina does not know about multiverse theory
+		- asking her questions about why she was kidnapped
+	- 
+ - further down the hallway we fight and kill a Nothic and some cultist named jerom
+ - we go even further down and we see a stage room with a bunch of cultists and those same one eyed creatures
+	 - There has been a rythmic chanting the entire time we were approaching it
+	 - There is an elf struggling in a cage dangling from the middle of the room
+	 - it appears to be an auditorium type of stage room![[Pasted image 20240714213416.png]]
+ - We have a vision of vecna cults taking secrets from people in a ritual and feeding it to vecna
+	 - in the vision we saw vecna and his purple left eye 
+ - As soon as we take down the cult leader, we go to sleep and then wake up inside of open coffins
+#### Continued in [[Awakening in evernight]]

@@ -1,0 +1,41 @@
+ - Eldon(the elf that was in the cage when we all fell asleep) has told us that we seem to have fallen into a crevice that seemed to have disappeared
+	 - He called this crevice an unstable one
+	 - We seem to be in an alternate version of neverwinter
+	 - we need a stable crevice to be able to go back to neverwinter
+	 - He suggests we go to a possible marketplace 
+ - We spot a large goat headed creature roaming the graveyard
+	 - We skedaddle before it can see us and we make our way to the market
+	 - The market is bustling with swathes of undead creatures
+		 - Vampire, zombie, etc
+	 - We enter the market after donning some disguises
+		 - We meet a merchant named sangora and ask her for directions to the material plane
+	 - Dolindar's tomb a tomb that we should find
+		 - In the graveyard we woke up in
+	 - She told us that we shouldn't rest here
+ - We make our way to this tomb 
+	 - As we approach we cannot find the goatheaded creature
+ - We make our way inside the tomb and there are a bunch of slabs
+	 - On the slabs are carvings of robed humans
+	 - There is a note on one of the slabs
+ - The paper says Numy's room and as we are reading it a ghost pops out
+	 - The ghost talks to us about the Dolindar's who hired her to clean the tomb
+	 - Shes not sure how to open the next door room
+ - We pull out the old notes that we found from the cultist in the other Mausoleum
+	 - Crevices of dusk
+		 - Magical gateways connected to a world populated by undead
+	 - Resolved to learn more after stealing secrets and offering to vecna
+ - Upon further exploration we see "DOLINDAR \\n NO WORLD TO RETURN" written in the room
+	 - Each of the letters is etched onto different tiles
+ - South of that room we find on 6 pedestals
+	 - 2200 gp neatly stacked piles
+	 - A golden helmet worth 280 gp
+	 - Bracers of Archery
+	 - Amulet of the Devout +3
+		 - The inscription is "My breathe is your's Kevetta - take it"
+			 - The name of the matriarch is Kevetta
+	 - A book titled: "Out of the Endless Prison"
+		 - The book outlines how to escape from the prison realm
+	 - A snow globe containing a miniature replica of the city of Neverwinter worth 350gp
+ - Past the puzzle we find a room with two coffins, there are spikes on the floor
+	 - 4 coffins on the sides of the room
+		 - They burst open as we open the door
