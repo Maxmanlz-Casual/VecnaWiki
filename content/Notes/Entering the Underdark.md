@@ -3,4 +3,9 @@
 - Hidden entrance to web's edge
 - We see 8 symbols carved in the doorway
 	- We cannot understand it
-	- 
+	- we eventually manage to pick the lock
+- We go into the room
+	- to the north there is 2 rubys on the floor
+	- both of them were trapped and were fake rubies
+	- to the south there is a shrine with some gross stuff on it
+- In front of the shrine there is a cultist of lolth and a goblin
