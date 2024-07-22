@@ -39,3 +39,14 @@
  - Past the puzzle we find a room with two coffins, there are spikes on the floor
 	 - 4 coffins on the sides of the room
 		 - They burst open as we open the door
+ - we go to the end of the room and inside the coffin is a swirl of purple energy
+	 - it is a crevice of dusk according to elden
+- stepping in we find ourselves in a dusty nondescript tomb
+	- we just suddenly appear
+	- the tomb has "home again to rest forever" inscribed
+- We are back in Neverwinter purportedly
+	- it smells like it
+	- we seem to still be in the Neverwinter graveyard
+		- poor side
+- We report back to the lord of Neverwinter
+	- We get a house in Neverwinter each and 9000 gold as a reward

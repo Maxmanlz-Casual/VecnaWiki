@@ -1,0 +1,45 @@
+- Upon receiving the reward from Lord Neverember we are given roughly a week of free time
+	- Rayne spent time finding out info about the dudes
+		- And buying clothes
+	- Rilrian and Wendel sell their houses
+- All of a sudden the world vanishes out of existence and we find ourselves in a candle lit parlor
+	- There is a confused stately woman in blue robes, and a frowning woman, and a man with a high crimson collar
+	- We recognize the pictures of these three as they are some of the most famous in all the lands
+		- [Mordenkainen](https://forgottenrealms.fandom.com/wiki/Mordenkainen)
+		- [Alustriel Silverhand](https://forgottenrealms.fandom.com/wiki/Alustriel_Silverhand)
+		- [Tasha](https://forgottenrealms.fandom.com/wiki/Iggwilv) the Witch(from an alternate realm in the past before she became Iggwilv the witch queen)
+- Tasha says that we can't be the answer to their wish
+	- Tasha got scammed out of a wish
+- We follow as they usher us to some furniture and ask us to sit down
+	- Taken to a lounge
+- Alustriel explains that even before our neverwinter adventure she has been investigating vecna
+	- She noticed a ripple in the weave and started investigating
+	- Determined that Vecna is trying to use the power of secrets to unravel the multiverse and recreate it in his image and establish himself as the ruler
+	- She sent out requests to the others
+		- They agreed to come
+		- Mordenkainen
+		- and a version of Tasha from [Oerth](https://forgottenrealms.fandom.com/wiki/Oerth)
+	- Using their combined magic they cast a combined wish and us being pulled there is the result of said wish 
+- We explained our connection to Vecna and our link 
+	- Alustriel said our fates are probably tied to vecna 
+	- Since wish couldn't be fulfilled it brought beings tied to vecna
+	- Tasha is interjecting with acerbic comments
+	- Mordenkainen is in deep concentration
+- All of the wizards are very tired from casting wish
+	- Mordenkainen grabs a silver chime and brings it over to us
+		- He says vecna is too powerful right now
+		- It is a chime of exile and would banish him to Oerth
+- There is an artifact rod of 7 parts that can weaken vecna enough to use the chime on vecna
+- The first piece is hidden in the [Underdark](https://forgottenrealms.fandom.com/wiki/Underdark)
+	- in a hidden safehouse 
+	- Web's edge
+	- Followers of [Lolth](https://forgottenrealms.fandom.com/wiki/Lolth) are there
+- The parts will point to each other so the portal we have in the sanctum will take us to each part
+- Alustriel says we can use the sanctum as we see fit
+	- Has a parlor
+	- Only a single bedroom left
+		- Couches are very plush
+	- Has the portal that we use
+- Told us to seek out Stramnirr and Gemgrove's Consortium of Armorers and Bladesmiths
+	- There is something that we need there
+	- 
