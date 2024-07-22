@@ -21,7 +21,7 @@
 		- and a version of Tasha from [Oerth](https://forgottenrealms.fandom.com/wiki/Oerth)
 	- Using their combined magic they cast a combined wish and us being pulled there is the result of said wish 
 - We explained our connection to Vecna and our link 
-	- Alustriel said our fates are probably tied to vecna 
+	- Alustriel said our fates are probably tied to Vecna 
 	- Since wish couldn't be fulfilled it brought beings tied to vecna
 	- Tasha is interjecting with acerbic comments
 	- Mordenkainen is in deep concentration
@@ -29,7 +29,7 @@
 	- Mordenkainen grabs a silver chime and brings it over to us
 		- He says vecna is too powerful right now
 		- It is a chime of exile and would banish him to Oerth
-- There is an artifact rod of 7 parts that can weaken vecna enough to use the chime on vecna
+- There is an artifact [Rod of Seven Parts](https://forgottenrealms.fandom.com/wiki/Rod_of_Seven_Parts) that can weaken Vecna enough to use the chime on vecna
 - The first piece is hidden in the [Underdark](https://forgottenrealms.fandom.com/wiki/Underdark)
 	- in a hidden safehouse 
 	- Web's edge
@@ -40,6 +40,18 @@
 	- Only a single bedroom left
 		- Couches are very plush
 	- Has the portal that we use
-- Told us to seek out Stramnirr and Gemgrove's Consortium of Armorers and Bladesmiths
-	- There is something that we need there
-	- 
+- Tasha told us to seek out Stramnirr and Gemgrove's Consortium of Armorers and Bladesmiths
+	- There is something that we need there possibly
+- Inside the store we find a cool sword or something I lost focus for a second
+- There is an elf shopkeeper Kelric gemgrove 3rd generation 
+- 7th Generation dwarf Tonir Stramnirr
+- We step through the portal after returning to the sanctum and find ourselves in the underdark
+- In the large foyer we find lots of humanoid skeleton remains
+	- We see something glowing on the northern wall
+	- East are doors
+	- South west is a shrine
+- Heading north we see some rubies that have magic on them
+	- Both of them are evocation
+- South are a bunch of gross stuff on a shrine
+	- Withered bloody parts
+	- baubles etc

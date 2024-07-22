@@ -1,0 +1,6 @@
+- We step into the portal and appear in the Underdark
+- We appear to have manifested in a small room and it is very dark(fitting lol)
+- Hidden entrance to web's edge
+- We see 8 symbols carved in the doorway
+	- We cannot understand it
+	- 
